@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on . . .
 - 📫 How to reach me ...
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Shawty Want Me
+- ⚡ Fun fact: I like food. 
 
 <!---
 Eclipse0629/Eclipse0629 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
